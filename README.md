@@ -25,3 +25,5 @@ The user-friendly interface and responsive design ensure easy accessibility acro
 
 # 📧 Contact
 semra.gunaydinwork@outlook.com
+
+# Enjoy shopping! 🛍️
